@@ -2,6 +2,7 @@
 Red Sun In the Sky by https://www.youtube.com/watch?v=OjNpRbNdR7E
 
 --------------
+
 eshang pajang hongya hong tong tonge
 shinjong ditajang she Mao Zedonge.
 Khali da women de ji pange
@@ -18,7 +19,8 @@ Hiyahi zu joh
 jaja zu joah
 gue ming chiang shai yieïgehong.
 
-******************BREAK********************
+--------------
+
 Huang chin djong die hong tajang
 tchow dewing djangwi kjenhong.
 Chang paichin di kushenljouw miang
@@ -32,8 +34,10 @@ Aaah Mao djoeshi
 Woa mamu shenjuäni 
 Wintentjouw doulouchi tjin shan   
 Yen doö yen di tchoejeni
-Weng shewoe tjawamsha o tja  
-************************************************
+Weng shewoe tjawamsha o tja
+
+--------------
+
 Jeshang pajang hongya hong tong tonge
 shinjong ditajang she Mao Zedonge.
 Khali da women de ji pange
@@ -48,11 +52,14 @@ Khali da women pejong tsjieng chinge
 gue ming chiang shai yieïgehonge.
 Solewa dzoe solewa dzoe
 Jiïja jipiè honge!
+
 -----------------
+
 the end
 
 Translation:
 -------------
+
 The sun in the sky is red
 In our hearts is the sun Mao Zedong
 He leads us to liberation
@@ -67,7 +74,7 @@ The revolutionary country is a piece of red yeah
 Yiyayiziyou a, yaeryaziyoua
 The revolutionary country is a piece of red
 
-BREAK
+--------------
 
 The red sun in our hearts
 Shines a piece of red to the borders of the motherland
@@ -83,7 +90,7 @@ Your teachings are kept in our hearts
 Yanbian people wish you
 Longevity with no boundaries, longevity of years with no boundaries
 
-BREAK
+--------------
 
 The sun in the sky is red
 In our hearts is the sun Mao Zedong
@@ -108,6 +115,7 @@ yiya..... one piece of red!!!!!!!!!!
 
 translation:
 ----------
+
 The sun in the sky is red
 In our hearts is the sun Mao Zedong
 He leads us to liberation
@@ -122,7 +130,7 @@ The revolutionary country is a piece of red yeah
 Yiyayiziyou a, yaeryaziyoua
 The revolutionary country is a piece of red
 
-BREAK
+--------------
 
 The red sun in our hearts
 Shines a piece of red to the borders of the motherland
@@ -138,7 +146,7 @@ Your teachings are kept in our hearts
 Yanbian people wish you
 Longevity with no boundaries, longevity of years with no boundaries
 
-BREAK
+--------------
 
 The sun in the sky is red
 In our hearts is the sun Mao Zedong
