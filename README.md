@@ -3,13 +3,13 @@ Red Sun In the Sky by https://www.youtube.com/watch?v=OjNpRbNdR7E
 
 --------------
 
-eshang pajang hongya hong tong tonge
-shinjong ditajang she Mao Zedonge.
-Khali da women de ji pange
-djengi pang shentang ja suo ju ren.
-Hiyahi zu joh
-jaja zu joah
-djengi pang shentang ja suo ju ren.
+eshang pajang hongya hong tong tonge:
+shinjong ditajang she Mao Zedonge.:
+Khali da women de ji pange:
+djengi pang shentang ja suo ju ren.:
+Hiyahi zu joh:
+jaja zu joah:
+djengi pang shentang ja suo ju ren.:
 
 Jeshang pajang hongya hong tong tonge
 shinjong ditajang she Mao Zedonge.
