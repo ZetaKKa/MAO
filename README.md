@@ -1,5 +1,5 @@
 # MAO  
-![Image text](https://upload.wikimedia.org/wikipedia/commons/9/94/Chairman_Mao_is_the_Red_Sun_in_Our_Hearts%2C_People%27s_Republic_of_China%2C_1968%2C_lithograph_-_Jordan_Schnitzer_Museum_of_Art%2C_University_of_Oregon_-_Eugene%2C_Oregon_-_DSC09554.jpg)  
+![Image text](https://unherd.com/wp-content/uploads/2020/07/GettyImages-525273682.jpg)  
 Red Sun In the Sky by https://www.youtube.com/watch?v=OjNpRbNdR7E
 
 --------------
