@@ -1,7 +1,6 @@
 # MAO  
+Red Sun In the Sky by https://www.youtube.com/watch?v=OjNpRbNdR7E  
 ![Image text](https://unherd.com/wp-content/uploads/2020/07/GettyImages-525273682.jpg)  
-Red Sun In the Sky by https://www.youtube.com/watch?v=OjNpRbNdR7E
-
 --------------
 
 eshang pajang hongya hong tong tonge  
